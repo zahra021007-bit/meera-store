@@ -1,1 +1,0 @@
-# meera-store
